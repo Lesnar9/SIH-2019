@@ -1,0 +1,1 @@
+During an epidemic outbreak Govt. and municipality can,t have a rough estimate of which epidemic is persuading and what will be its rate in the upcoming days so it became hard to inform and warn peron and hospitals regarding that.…
